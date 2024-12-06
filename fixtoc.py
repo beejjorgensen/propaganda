@@ -29,7 +29,7 @@ def fix_ncx():
         #print(repr(text_node.firstChild.nodeValue))
 
         chapter_name = text_node.firstChild.nodeValue.strip()
-        m = re.match(r'CHAPTER\s*([IXV]+?)', chapter_name)
+        m = re.match(r'CHAPTER\s*([IXV]+)', chapter_name)
 
         if m is not None:
             chapter_roman = m.group(1)
@@ -73,7 +73,7 @@ def fix_nav():
         new_chapter_name = None
 
         #print(">>>" + chapter_name)
-        m = re.match(r'CHAPTER\s*([XIV]+?)', chapter_name)
+        m = re.match(r'CHAPTER\s*([XIV]+)', chapter_name)
 
         if m is not None:
             chapter_roman = m.group(1)
