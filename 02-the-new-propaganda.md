@@ -4,191 +4,136 @@
 THE NEW PROPAGANDA
 :::
 
-In the days when kings were kings, Louis XIV
-made his modest remark, "I'Etat c'est moi." He
-was nearly right.
+In the days when kings were kings, Louis XIV made his modest remark,
+"L'Etat c'est moi." He was nearly right.
 
-But times have changed. The steam engine, the
-multiple press, and the public school, that trio of the
-industrial revolution, have taken the power away
-from kings and given it to the people. The people
-actually gained power which the king lost. TFor
-economic power tends to draw after it political
-power; and the history of the industrial revolution
-shows how that power passed from the king and the
-aristocracy to the bourgeoisie. Universal suffrage
-and universal schooling regnforced this tendency, and
-at last even the bourgeoisie stood in fear of the com-
-mon people. For the masses promised to become
-king.
+But times have changed. The steam engine, the multiple press, and the
+public school, that trio of the industrial revolution, have taken the
+power away from kings and given it to the people. The people actually
+gained power which the king lost. For economic power tends to draw after
+it political power; and the history of the industrial revolution shows
+how that power passed from the king and the aristocracy to the
+bourgeoisie. Universal suffrage and universal schooling reënforced this
+tendency, and at last even the bourgeoisie stood in fear of the common
+people. For the masses promised to become king.
 
-To-day, however, a reaction has set in. The mi-
-nority has discovered a powerful help in influencing
-majorities. It has been found possible so to mold
-the mind of the masses that they will throw
-their newly gained strength in the desired direction.
-In the present structure of society, this practice is
-inevitable. Whatever of sodal importance is done
+To-day, however, a reaction has set in. The minority has discovered a
+powerful help in influencing majorities. It has been found possible so
+to mold the mind of the masses that they will throw their newly gained
+strength in the desired direction. In the present structure of society,
+this practice is inevitable. Whatever of social importance is done
+to-day, whether in politics, finance, manufacture, agriculture, charity,
+education, or other fields, must be done with the help of propaganda.
+Propaganda is the executive arm of the invisible government.
 
-19
-Propaganda
+Universal literacy was supposed to educate the common man to control his
+environment. Once he could read and write he would have a mind fit to
+rule.  So ran the democratic doctrine. But instead of a mind, universal
+literacy has given him rubber stamps, rubber stamps inked with
+advertising slogans, with editorials, with published scientific data,
+with the trivialities of the tabloids and the platitudes of history, but
+quite innocent of original thought. Each man's rubber stamps are the
+duplicates of millions of others, so that when those millions are
+exposed to the same stimuli, all receive identical imprints, It may seem
+an exaggeration to say that the American public gets most of its ideas
+in this wholesale fashion. The mechanism by which ideas are disseminated
+on a large scale is propaganda, in the broad sense of an organized
+effort to spread a particular belief or doctrine.
 
-to-day, whether in politics, finance, manufacture, agri-
-culture, charity, education, or other fields, must be
-done with the help of propaganda. Propaganda is
-the executive arm of the invisible government.
+I am aware that the word "propaganda" carries to many minds an
+unpleasant connotation. Yet whether, in any instance, propaganda is good
+or bad depends upon the merit of the cause urged, and the correctness of
+the information published.
 
-Universal literacy was supposed to educate the
-common man to control his environment. Once
-he could read and write he would have a mind fit to
-rule.  So ran the democratic doctrine. But instead
-of a mind, universal literacy has given him rubber
-stamps, rubber stamps inked with advertising slogans,
-with editorials, with published scientific data, with
-the trivialities of the tabloids and the platitudes of
-history, but quite innocent of original thought. Each
-man's rubber stamps are the duplicates of millions
-of others, so that when those millions are exposed to
-the same stimuli, all receive identical imprints, It
-may seem an exaggeration to say that the American
-- public gets most of its ideas in this wholesale fashion.
-The mechanism by which ideas are disseminated on a
-large scale is propaganda, in the broad sense.of
-an organized effort to spread a particular belief or
-doctrine.
+In itself, the word "propaganda" has certain technical meanings which,
+like most things in this world, are "neither good nor bad but custom
+makes them so." I find the word defined in Funk and Wagnalls' Dictionary
+in four ways:
 
-I am aware that the word "propaganda" carries to
-many mindsan unpleasant connotation. Yet whether,
-in any instance, propaganda is good or bad depends
-upon the merit of the cause urged, and the correct-
-ness of the information published.
+"1. A society of cardinals, the overseers of foreign missions; also the
+College of the Propaganda at Rome founded by Pope Urban VIII in 1627 for
+the education of missionary priests; Sacred College _de Propaganda
+Fide_.
 
-In itself, the word "propaganda" has certain tech-
-nical meanings which, like most things in this world,
+"2. Hence, any institution or scheme for propagating a doctrine or
+system.
 
-20 :
-The New Propaganda
-
-are "neither good nor bad but custom makes them
-so0." 1 find the word defined in Funk and Wagnallg'
-Dictionary in four ways:
-
-"1. A society of cardinals, the overseers of for-
-eign missions; also the College of the Propaganda at
-Rome founded by Pope Urban VIII in 1627 for the
-education of missionary priests; Sacred College de
-Propaganda Fide.
-
-'. Hence, any institution or scheme for propa-
-gating a doctrine or system.
-
-"3. Effort directed systematically toward the
-gaining of public support for an opinion or a course
-of action.
+"3. Effort directed systematically toward the gaining of public support
+for an opinion or a course of action.
 
 "4. The principles advanced by a propaganda."
 
-The Scientific American, in a recent issue, pleads
-for the restoration to respectable usage of that "fine
-old word 'propaganda.'"
+The _Scientific American_, in a recent issue, pleads for the restoration
+to respectable usage of that "fine old word 'propaganda.'"
 
-"There is no word in the English language," it
-says, "whose meaning has been so sadly distorted as
-the word 'propaganda.' The change took place
-~ mainly during the late war when the term took on a
-- decidedly sinister complexion.
+"There is no word in the English language," it says, "whose meaning has
+been so sadly distorted as the word 'propaganda.' The change took place
+mainly during the late war when the term took on a decidedly sinister
+complexion.
 
-"If you turn to the Standard Dictionary, you will
-find that the word was applied to a congregation or
-society of cardinals for the care and oversight of
-foreign missions which was instituted at Rome in
-the year 1627. It wgs applied also to the College of
-the Propaganda at Rome that was founded by Pope
-Urban VIII, for the education of the missionary
-' ' : 21
-Propaganda
+"If you turn to the Standard Dictionary, you will find that the word was
+applied to a congregation or society of cardinals for the care and
+oversight of foreign missions which was instituted at Rome in the year
+1627\. It was applied also to the College of the Propaganda at Rome that
+was founded by Pope Urban VIII, for the education of the missionary
+priests. Hence, in later years the word came to be applied to any
+institution or scheme for propagating a doctrine or system.
 
-priests. Hence, in later years the word came to be
-applied to any institution or scheme for propagating
-a doctrine or system.
+"Judged by this definition, we can see that in its true sense propaganda
+is a perfectly legitimate form of human activity. Any society, whether
+it be social, religious or political, which is possessed of certain
+beliefs, and sets out to make them known, either by the spoken or
+written words, is practicing propaganda.
 
-"Judged by this definition, we can see that in its
-true sense propaganda is a perfectly legitimate form
-of human activity. Any society, whether it be social,
-religious or political, which is possessed of certain
-beliefs, and sets out to make them known, either by
-the spoken or written words, is practicing propa-
-ganda.
+"Truth is mighty and must prevail, and if any body of men believe that
+they have discovered a valuable truth, it is not merely their privilege
+but their duty to disseminate that truth. If they realize, as they
+quickly must, that this spreading of the truth can be done upon a large
+scale and effectively only by organized effort, they will make use of
+the press and the platform as the best means to give it wide
+circulation. Propaganda becomes vicious and reprehensive only when its
+authors consciously and deliberately disseminate what they know to be
+lies, or when they aim at effects which they know to be prejudicial to
+the common good.
 
-"Truth is mighty and must prevail, and if any
-body of men believe that they have discovered a
-valuable truth, it is not merely their privilege but
-their duty to disseminate that truth. If they realize, -
-as they quickly must, that this spreading of the truth
-can be done upon a large scale and effectively only
-by organized effort, they will make use of the press
-and the platform as the best means to give it wide
-circulation. Propaganda becomes vicious and repre-
-hensive only when its authors consciously and delib-
-erately disseminate what they know to be lies, or
-when they aim at effects which they know to be prej-
-udicial to the common good.
+"'Propaganda' in its proper meaning is a perfectly wholesome word, of
+honest parentage, and with an honorable history. The fact that it should
+to-day be carrying a sinister meaning merely shows how much of the child
+remains in the average adult. A group of citizens writes and talks in
+favor of a certain course of action in some debatable question,
+believing that it is promoting the best interest of the community.
+Propaganda? Not a bit of it. Just a plain forceful statement of truth.
+But let another group of citizens express opposing views, and they are
+promptly labeled with the sinister name of
+propaganda.&nbsp;.&nbsp;.&nbsp;.
 
-" Propaganda' in its proper meaning is a perfectly
-wholesome word, of honest parentage, and with an
-honorable history. The fact that it should to-day be
-carrying a sinister meaning merely shows how much
-of the child remains in the average adult. A group
-of citizens writes and talks in favor of a certain
-
-22
-The New Propaganda
-
-course of action in some debatable question, believing
-that it is promoting the best interest of the commu-
-nity. Propaganda? Not a bit of it. Just a plain
-forceful statement of truth. But let another group
-of citizens express opposing views, and they are
-promptly labeled with the sinister name of propa-
-ganda. . . .
-
-€ cWhat is sauce for the goose is sauce for the
-gander," says a wise old proverb. Let us make haste
-to put this fine old word back where it belongs, and
-restore, its dignified significance for the use of our
+"'What is sauce for the goose is sauce for the gander,' says a wise old
+proverb. Let us make haste to put this fine old word back where it
+belongs, and restore, its dignified significance for the use of our
 children and our children's children."
+The extent to which propaganda shapes the progress of affairs about
+us.may surprise even well informed persons. Nevertheless, it is only
+necessary to look under the surface of the newspaper for a hint as to
+propaganda's authority over public opinion. Page one of the New York
+_Times_ on the day these paragraphs are written contains eight important
+news stories. Four of them, or one-half, are propaganda. The casual
+reader accepts them as accounts of spontaneous happenings. But are they?
+Here are the headlines which announce them: "[TWELVE NATIONS WARN CHINA
+REAL REFORM MUST COME BEFORE THEY GIVE RELIEF]{.small}," "[PRITCHETT
+REPORTS ZIONISM WILL FAIL]{.small}," "[REALTY MEN DEMAND A TRANSIT
+INQUIRY]{.small}," and "[OUR LIVING STANDARD HIGHEST IN HISTORY, SAYS
+HOOVER REPORT]{.small}."
 
-The extent to which propaganda shapes the prog-
-ress of affairs about us.may surprise even well in-
-formed persons. Nevertheless, it is only necessary
-to look under the surface of the newspaper for a
-hint as to propaganda's authority over public opinion.
-Page one of the New York Times on the day these
-paragraphs are written contains eight important news
-stories. Four of them, or one-half, are propaganda.
-The casual reader accepts them as accounts of spon-
-taneous happenings. But are they? Here are the
-headlines which announce them: "TWELVE NATIONS
-WARN CHINA REAL REFORM MUST COME BEFORE
-THEY GIVE RELIEF," "PRITCHETT REPORTS ZIONISM
-WILL FAIL," "REALTY MEN DEMAND A TRANSIT IN-
-QUIRY," and "OUR LIVING STANDARD HIGHEST IN
-HISTORY, SAYS HOOVER REPORT."
+Take them in order: the article on China explains the joint report of
+the Commission on Extraterritoriality in China, presenting an exposition
+of the Powers' stand in the Chinese muddle. What it says is less
+important than what it is. It was "made public by the State Department
+to-day" with the purpose of presenting to the American public a picture
+of the State Department's position. Its source gives it authority, and
+the American public tends to accept and support the State Department
+view.
 
-Take them in order: the article on China explains
-
-23
-Propaganda
-
-the joint report of the Commission on Extraterri-
-toriality in China, presenting an exposition of the
-Powers' stand in the Chinese muddle. What it says
-is less important than what it is. It was "made pub-
-lic by the State Department to-day" with the purpose
-of presenting to the American public a picture of the
-State Department's position. Its source gives it au-
-thority, and the American public tends to accept and
-support the State Department view.
+<!-- BOOKMARK -->
 
 The report of Dr. Pritchett, a trustee of the Car-
 negie Foundation for International Peace, is an at-
