@@ -11,6 +11,8 @@ cover-image: cover.jpg
 
 # Frontmatter
 
+<!-- EPUB conversion by Beej Jorgensen, CC0 licensed -->
+
 ::: {.center .pblock}
 [*BOOKS BY THE SAME AUTHOR*]{.underline .large}
 

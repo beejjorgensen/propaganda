@@ -411,3 +411,23 @@ p.publisher {
 section[id="frontmatter"] > h1 {
   display: none;
 }
+
+.display-none {
+    display: none;
+}
+
+section[id="chapter-1"] > h1,
+section[id="chapter-2"] > h1,
+section[id="chapter-3"] > h1,
+section[id="chapter-4"] > h1,
+section[id="chapter-5"] > h1,
+section[id="chapter-6"] > h1,
+section[id="chapter-7"] > h1,
+section[id="chapter-8"] > h1,
+section[id="chapter-9"] > h1,
+section[id="chapter-10"] > h1,
+section[id="chapter-11"] > h1 {
+    font-size: 1.5em;
+    font-weight: bold;
+    text-transform: uppercase;
+}
