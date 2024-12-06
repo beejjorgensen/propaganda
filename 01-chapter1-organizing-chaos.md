@@ -1,4 +1,4 @@
-# Chapter I[: Organizing Chaos]{.display-none} {#chapter-1}
+# CHAPTER I {#chapter-1}
 
 ::: {.pblock .center .double-space-after}
 ORGANIZING CHAOS
