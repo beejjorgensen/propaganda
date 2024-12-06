@@ -1,0 +1,19 @@
+#!/bin/sh
+
+temp=ftoc.$$.temp
+
+mkdir $temp
+cd $temp
+
+unzip ../propaganda.epub
+
+../fixtoc.py EPUB/toc.ncx
+
+zip -X -r ../${temp}.epub .
+
+cd ..
+
+mv ${temp}.epub propaganda.epub
+
+rm -rf $temp
+

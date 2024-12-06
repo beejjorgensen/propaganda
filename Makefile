@@ -10,6 +10,7 @@ all: $(TARGET)
 
 $(TARGET): $(SOURCES) epub.css cover.jpg
 	pandoc $(PANDOC_OPTS) --css $(CSS) -o $@ $(SOURCES)
+	./fixtoc
 
 clean:
 	rm -f $(TARGET)
