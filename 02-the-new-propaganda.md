@@ -4,8 +4,8 @@
 THE NEW PROPAGANDA
 :::
 
-In the days when kings were kings, Louis XIV made his modest remark,
-"L'Etat c'est moi." He was nearly right.
+[In]{.small-caps} the days when kings were kings, Louis XIV made his
+modest remark, "L'Etat c'est moi." He was nearly right.
 
 But times have changed. The steam engine, the multiple press, and the
 public school, that trio of the industrial revolution, have taken the
