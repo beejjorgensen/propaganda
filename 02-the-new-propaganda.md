@@ -133,260 +133,173 @@ of the State Department's position. Its source gives it authority, and
 the American public tends to accept and support the State Department
 view.
 
-<!-- BOOKMARK -->
+The report of Dr. Pritchett, a trustee of the Carnegie Foundation for
+International Peace, is an attempt to find the facts about this Jewish
+colony in the midst of a restless Arab world. When Dr. Pritchett's
+survey convinced him that in the long run Zionism would "bring more
+bitterness and more unhappiness both for the Jew and for the Arab," this
+point of view was broadcast with all the authority of the Carnegie
+Foundation, so that the public would hear and believe. The statement by
+the president of the Real Estate Board of New York, and Secretary
+Hoover's report, are similar attempts to influence the public toward an
+opinion.
 
-The report of Dr. Pritchett, a trustee of the Car-
-negie Foundation for International Peace, is an at-
-tempt to find the facts about this Jewish colony in
-the midst of a restless Arab world. When Dr.
-Pritchett's survey convinced him that in the long run
-Zionism would "bring more bitterness and more un-~
-happiness both for the Jew and for the Arab," this
-point of view was broadcast with all the authority
-of the Carnegie Foundation, so that the public would
-hear and believe. The statement by the president of
-the Real Estate Board of New York, and Secretary
-Hoover's report, are similar attempts to influence
-the public toward an opinion.
+These examples are not given to create the impression that there is
+anything sinister about propaganda. They are set down rather to
+illustrate how conscious direction is given to events, and how the men
+behind these events influence public opinion. As such they are examples
+of modern propaganda. At this point we may attempt to define propaganda.
 
-These examples are not given to create the impres-
-sion that there is anything sinister about propaganda.
-They are set down rather to illustrate how conscious
-direction is given to events, and how the men behind
-these events influence public opinion. As such they
-are examples of modern propaganda. At this point
-we may attempt to define propaganda.
+Modern propaganda is a consistent, enduring effort to create or shape
+events to influence the relations of the public to an enterprise, idea
+or group.
 
-24
-The New Propaganda
+This practice of creating circumstances and of creating pictures in the
+minds of millions of persons is very common. Virtually no important
+undertaking is now carried on without it, whether that enterprise be
+building a cathedral, endowing a university, marketing a moving picture,
+floating a large bond issue, or electing a president. Sometimes the
+effect on the public is created by a professional propagandist,
+sometimes by an amateur deputed for the job. The important thing is that
+it is universal and continuous; and in its sum total it is regimenting
+the public mind every bit as much as an army regiments the bodies of its
+soldiers.
 
-Modern propaganda is a consistent, enduring ef-
-fort to create or shape events to influence the rela-
-tions of the public to an enterprise, idea or group.
+So vast are the numbers of minds which can be regimented, and so
+tenacious are they when regimented, that a group at times offers an
+irresistible pressure before which legislators, editors, and teachers
+are helpless. The group will cling to its stereotype, as Walter Lippmann
+calls it, making of those supposedly powerful beings, the leaders of
+public opinion, mere bits of driftwood in the surf. When an Imperial
+Wizard, sensing what is perhaps hunger for an ideal, offers a picture of
+a nation all Nordic and nationalistic, the common man of the older
+American stock, feeling himself elbowed out of his rightful position and
+prosperity by the newer immigrant stocks, grasps the picture which fits
+in so neatly with his prejudices, and makes it his own. He buys the
+sheet and pillow-case costume, and bands with his fellows by the
+thousand into a huge group powerful enough to swing state elections and
+to throw a ponderous monkey wrench into a national convention.
 
-This practice of creating circumstances and of
-creating pictures in the minds of millions of persons
-is very common. Virtually no important undertaking
-is now carried on without it, whether that enterprise
-be building a cathedral, endowing a university, mar-
-keting a moving picture, floating a large bond issue,
-or electing a president. Sometimes the effect on the
-public is created by a professional propagandist,
-sometimes by an amateur deputed for the job. The
-important thing is that it is universal and continuous;
-and in its sum total it is regimenting the public mind
-every bit as much as an army regiments the bodies of
-its soldiers. '
+In our present social organization approval of the public is essential
+to any large undertaking. Hence a laudable movement may be lost unless
+it impresses itself on the public mind. Charity, as well as business,
+and politics and literature, for that matter, have had to adopt
+propaganda, for the public must be regimented into giving money just as
+it must be regimented into tuberculosis prophylaxis. The Near East
+Relief, the Association for the Improvement of the Condition of the Poor
+of New York, and all the rest, have to work on public opinion just as
+though they had tubes of tooth paste to sell. We are proud of our
+diminishing infant death rate—and that too is the work of propaganda.
 
-So vast are the numbers of minds which can be
-regimented, and so tenacious are they when regi-
-mented, that a group at times offers an irresistible
-. pressure before which legislators, editors, and teach~
-ers are helpless. The group will cling to its stereo-
-type, as Walter Lippmann calls it, making of those
-supposedly powerful beings, the leaders of public
-opinion, mere bits of driftwood in the surf. When
-an Imperial Wizard, sensing what is perhaps hunger
-for an ideal; offers a picture of a nation all Nordic
-and nationalistic, the common man of the older
-American stock, feeling himself elbowed out of his
-rightful position and prosperity by the newer immi-
+Propaganda does exist on all sides of us, and it does change our mental
+pictures of the world. Even if this be unduly pessimistic—and that
+remains to be proved—the opinion reflects a tendency that is undoubtedly
+real. In fact, its use is growing as its efficiency in gaining public
+support is recognized.
 
-25
-Propaganda
+This then, evidently indicates the fact that any one with sufficient
+influence can lead sections of the public at least for a time and for a
+given purpose. Formerly the rulers were the leaders. They laid out the
+course of history, by the simple process of doing what they wanted. And
+if nowadays the successors of the rulers, those whose position or ability gives them power, can no longer do what they want without the
+approval of the masses, they find in propaganda a tool which is
+increasingly powerful in gaining that approval. Therefore, propaganda is
+here to stay.
 
-grant stocks, grasps the picture which fits in so neatly
-with his prejudices, and makes it his own. He buys
-the sheet and pillow-case costume, and bands with
-his fellows by the thousand into a huge group
-powerful enough to swing state elections and to
-throw a ponderous monkey wrench into a national
-convention.
+It was, of course, the astounding success of propaganda during the war
+that opened the eyes of the intelligent few in all departments of life
+to the possibilities of regimenting the public mind. The American
+government and numerous patriotic agencies developed a technique which,
+to most persons accustomed to bidding for public acceptance, was new.
+They not only appealed to the individual by means of every
+approach—visual, graphic, and auditory—to support the national endeavor,
+but they also secured the coöperation of the key men in every
+group—persons whose mere word carried authority to hundreds or thousands
+or hundreds of thousands of followers. They thus automatically gained
+the support of fraternal, religious, commercial, patriotic, social and
+local groups whose members took their opinions from their accustomed
+leaders and spokesmen, or from the periodical publications which they
+were accustomed to read and believe. At the same time, the manipulators
+of patriotic opinion made use of the mental clichés and the emotional
+habits of the public to produce mass reactions against the alleged
+atrocities, the terror and the tyranny of the enemy. It was only
+natural, after the war ended, that intelligent persons should ask
+themselves whether it was not possible to apply a similar technique to
+the problems of peace.
 
-In our present social organization approval of the
-public is essential to any large undertaking. Hence
-a laudable movement may be lost unless it impresses
-itself on the public mind. Charity, as well as busi-
-ness, and politics and literature, for that matter, have
-had to adopt propaganda, for the public must be
-regimented into giving money just as it must be regi-
-mented into tuberculosis prophylaxis. The Near
-East Relief, the Association for the Improvement of
-the Condition of the Poor of New York, and all
-the rest, have to work on public opinion just as
-though they had tubes of tooth paste to sell. We
-are proud of our diminishing infant death rate—and
-that too is the work of propaganda.
+As a matter of fact, the practice of propaganda since the war has
+assumed very different forms from those prevalent twenty years ago. This
+new technique may fairly be called the new propaganda.
 
-Propaganda does exist on all sides of us, and it
-does change our mental pictures of the world. Even
-if this be unduly pessimistic—and that remains to
-be proved—the opinion reflects a tendency that is
-undoubtedly real. In fact, its use is growing as
-its efficiency in gaining public support is recognized.
+It takes account not merely of the individual, nor even of the mass mind
+alone, but also and especially of the anatomy of society, with its
+interlocking group formations and loyalties. It sees the individual not
+only as a cell in the social organism but as a cell organized into the
+social unit. Touch a nerve at a sensitive spot and you get an automatic
+response from certain specific members of the organism.
 
-This then, evidently indicates the fact that any
-one with sufficient influence can lead sections of the
+Business offers graphic examples of the effect that may be produced upon
+the public by interested groups, such as textile manufacturers losing
+their markets. This problem arose, not long ago, when the velvet
+manufacturers were facing ruin because their product had long been out
+of fashion. Analysis showed that it was impossible to revive a velvet
+fashion within America. Anatomical hunt for the vital spot! Paris!
+Obviously! But yes and no. Paris is the home of fashion. Lyons is the
+home of silk. The attack had to be made at the source. It was determined
+to substitute purpose for chance and to utilize the regular sources for
+fashion distribution and to influence the public from these sources. A
+velvet fashion service, openly supported by the manufacturers, was
+organized. Its first function was to establish contact with the Lyons
+manufactories and the Paris couturiers to discover what they were doing,
+to encourage them to act on behalf of velvet, and to help in the proper
+exploitation of their wares. An intelligent Parisian was enlisted in the
+work. He visited Lanvin and Worth, Agnès and Patou, and others and
+induced them to use velvet in their gowns and hats. It was he who
+arranged for the distinguished Countess This or Duchess That to wear the
+hat or the gown. And as for the presentation of the idea to the public,
+the American buyer or the American woman of fashion was simply shown the
+velvet creations in the atelier of the dressmaker or the milliner. She
+bought the velvet because she liked it and because it was in fashion.
 
-26
-The New Propaganda
+The editors of the American magazines and fashion reporters of the
+American newspapers, like- wise subjected to the actual (although
+created) circumstance, reflected it in their news, which, in turn,
+subjected the buyer and the consumer here to the same influences. The
+result was that what was at first trickle of velvet became a flood. A
+demand was slowly, but deliberately, created in Paris and America. A big
+department store, aiming to be a style leader, advertised velvet gowns
+and hats on the authority of the French couturiers, and quoted original
+cables received from them. The echo of the new style note was heard from
+hundreds of department stores throughout the country which wanted to be
+style leaders too. Bulletins followed despatches. The mail followed the
+cables. And the American woman traveler appeared before the ship news
+photographers in velvet gown and hat.
 
-public at least for a time and for a given purpose.
-Formerly the rulers were the leaders. They laid
-out the course of history, by the simple process of
-doing what they wanted. And if nowadays the
-successors of the rulers, those whose position or
-ability gives them power, can no longer do what
-they want without the approval of the masses,
-they find in propaganda a tool which is increasingly
-powerful in gaining that approval. Therefore, prop-
-aganda is here to stay.
+The created circumstances had their effect. "Fickle fashion has veered
+to velvet," was one newspaper comment. And the industry in the United
+States again kept thousands busy.
 
-It was, of course, the astounding success of prop-
-aganda during the war that opened the eyes of
-the intelligent few in all departments of life to
-the possibilities of regimenting the public mind.
-The American government and numerous patriotic
-agencies developed a technique which, to most per-
-sons accustomed to bidding for public acceptance, was
-new. They not only appealed to the individual by
-means of every approach—visual, graphic, and audi-
-tory—to support the national endeavor, but they also
-secured the cobperation of the key men in every group
-—persons whose mere word carried authority to hun-
-dreds or thousands or hundreds of thousands of
-followers. They thus automatically gained the sup-
-port of fraternal, religious, commercial, patriotic,
-social and local groups whose members took their
-opinions from their accustomed leaders and spokes-
-men, or from the periodical publications which they
-were accustomed to read and believe. At the same
+The new propaganda, having regard to the constitution of society as a
+whole, not infrequently serves to focus and realize the desires of the
+masses. A desire for a specific reform, however widespread, cannot be
+translated into action until it is made articulate, and until it has
+exerted sufficient pressure upon the proper law-making bodies. Millions
+of house- wives may feel that manufactured foods deleterious to health
+should be prohibited. But there is little chance that their individual
+desires will be translated into effective legal form unless their
+half-expressed demand can be organized, made vocal, and concentrated
+upon the state legislature or upon the Federal Congress in some mode
+which will produce the results they desire. Whether they realize it or
+not, they call upon propaganda to organize and effectuate their demand.
 
-27
-Propaganda
-
-time, the manipulators of patriotic opinion made use
-of the mental clichés and the emotional habits of the
-public to produce mass reactions against the alleged
-atrocities, the terror and the tyranny of the enemy.
-It was only natural, after the war ended, that intel-
-ligent persons should ask themselves whether it was
-not possible to apply a similar technique to the prob-
-lems of peace.
-
-.As a matter of fact, the practice of propaganda
-since the war has assumed very different forms from
-those prevalent twenty years ago. This new tech-
-nique may fairly be called the new propaganda.
-
-It takes account not merely of the individual, nor
-even of the mass mind alone, but also and especially
-of the anatomy of society, with its interlocking group
-formations and loyalties. It sees the individual
-not only as a cell in the social organism but as a cell
-organized into the social unit. Touch a nerve at a
-sensitive spot and you get an automatic response
-from certain specific members of the organism.
-
-Business offers graphic examples of the effect that
-may be produced upon the public by interested
-groups, such as textile manufacturers losing their
-markets. This problem arose, not long ago, when the
-velvet manufacturers were facing ruin because their
-product had long been out of fashion. Analysis
-showed that it was impossible to revive a velvet fash-
-ion within America. Anatomical hunt for the vital
-spot! Paris! Obviously! But yesand no. Parisis
-
-28 :
-The New Propaganda
-
-the home of fashion. Lyons is the home of silk. The
-attack had to be made at the source. It was deter-
-mined to substitute purpose for chance and to utilize
-the regular sources for fashion distribution and to
-influence the public from these sources. A velvet
-fashion service, openly supported by the manufac-
-turers, was organized. Its first function was to es-
-tablish contact with the Lyons manufactories and
-the Paris couturiers to discover what they were doing,
-to encourage them to act on behalf of velvet, and to
-help in the proper exploitation of their wares. An
-intelligent Parisian was enlisted in the work. He vis-
-ited Lanvin and Worth, Agnés and Patou, and others
-and induced them to use velvet in their gowns and
-hats. It was he who arranged for the distinguished
-Countess This or Duchess That to wear the hat or the
-gown. And as for the presentation of the idea to the
-public, the American buyer or the American woman
-of fashion was simply shown the velvet creations in
-the atelier of the dressmaker or the milliner. She
-bought the velvet because she liked it and because
-it was in fashion.
-
-The editors of the American magazines and fash-
-ion reporters of the American newspapers, like-
-wise subjected to the actual (although created) cir-
-cumstance, reflected it in their news, which, in turn,
-subjected the buyer and the consumer here to the
-same influences. The result was that what was at
-first 2 #rickle of velvet became a flood. A demand
-
-29
-Propaganda
-
-was slowly, but deliberately, created in Paris and
-America. A big department store, aiming to be a
-style leader, advertised velvet gowns and hats on the
-authority of the French couturiers, and quoted origi-
-nal cables received from them. The echo of the
-new style note was heard from hundreds of depart-
-ment stores throughout the country which wanted to
-be style leaders too. Bulletins followed despatches.
-'The mail followed the cables. And the American
-woman traveler appeared before the ship news pho-
-tographers in velvet gown and hat.
-
-The created circamstances had their effect. "Fickle
-fashion has veered to velvet," was one newspaper
-comment. And the industry in the United States
-again kept thousands busy.
-
-The new propaganda, having regard to the consti-
-tution of society as a whole, not infrequently serves
-to focus and realize the desires of the masses. A
-desire for a specific reform, however widespread,
-cannot be translated into action until it is made articu-
-late, and until it has exerted sufficient pressure upon
-the proper law-making bodies. Millions of house-
-wives may feel that manufactured foods dele-
-terious to health should be prohibited. But there
-is little chance that their individual desires will be
-translated into effective legal form unless their half-
-expressed demand can be organized, made vocal,
-and concentrated upon the state legislature or upon
-the Federal Congress in some mode which will pro-
-
-30
-The New Propaganda
-
-* duce the results they desire. Whether they realize
-it or not, they call upon propaganda to organize and
-effectuate their demand.
-
-But clearly it is the intelligent minorities which
-need to make use of propaganda continuously and
-systematically. In the active proselytizing minori~
-ties in whom selfish interests and public interests
-coincide lie the progress and development of Amer-
-ica. Only through the active energy of the intelligent
-few can the public at large become aware of and act
+But clearly it is the intelligent minorities which need to make use of
+propaganda continuously and systematically. In the active proselytizing
+minorities in whom selfish interests and public interests coincide lie
+the progress and development of America. Only through the active energy
+of the intelligent few can the public at large become aware of and act
 upon new ideas.
 
-Small groups of persons can, and do, make the
-rest of us think what they please about a given sub-
-ject. But there are usually proponents and opponents
-of every propaganda, both of whom are equally
-eager to convince the majority.
-
-31
+Small groups of persons can, and do, make the rest of us think what they
+please about a given subject. But there are usually proponents and
+opponents of every propaganda, both of whom are equally eager to
+convince the majority.
