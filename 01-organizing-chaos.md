@@ -223,7 +223,7 @@ may have influence.
 This invisible, intertwining structure of groupings and associations is
 the mechanism by which democracy has organized its group mind and
 simplified its mass thinking. To deplore the existence of such a
-mechanism is_to ask for a society such as never was and never will be.
+mechanism is to ask for a society such as never was and never will be.
 To admit that it exists, but expect that it shall not be used, is
 unreasonable.
 
