@@ -4,9 +4,16 @@ creator: Edward L. Bernays
 lang: en-US
 description: How propaganda shapes democratic societies
 identifier:
-publisher:
+publisher: Liveright Publishing Corporation
+date: 1928
 rights: public domain
 cover-image: cover.jpg
+subject:
+  - propaganda
+  - democracy
+  - media influence
+  - public relations
+  - social engineering
 ---
 
 # Frontmatter
