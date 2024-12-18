@@ -261,7 +261,7 @@ handling of luggage.
 If a railroad and a baggage man, for their own interest, can be educated
 to handle baggage with more facility and promptness, with less damage to
 the baggage, and less inconvenience to the passenger; if the steamship
-company lets down, in its own interests, its restrictions on luggage;-
+company lets down, in its own interests, its restrictions on luggage;
 if the foreign government eases up on its baggage costs and
 transportation in order to further tourist travel; then the luggage
 manufacturers will profit.
