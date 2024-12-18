@@ -134,7 +134,7 @@ form—that is, as a platform. In devising the platform the leader should
 be sure that it is an honest platform. Campaign pledges and promises
 should not be lightly considered by the public, and they ought to carry
 something of the guarantee principle and money-back policy that an
-honor- able business institution carries with the sale of its goods. The
+honorable business institution carries with the sale of its goods. The
 public has lost faith in campaign promotion work. It does not say that
 politicians are dishonorable, but it does say that campaign pledges are
 written on the sand. Here then 'is one fact of public opinion of which
@@ -357,317 +357,220 @@ are obliged to work in harmony with their news sources.
 The political leader must be a creator of circumstances, not only a
 creature of mechanical processes of stereotyping and rubber stamping.
 
-Let us suppose that he is campaigning on a low-
-tariff platform. He may use the modern mechanism
-of the radio to spread his views, but he will almost
-certainly use the psychological method of approach
-which was old in Andrew Jackson's day, and which
-business has largely discarded. He will say over the
-radio: "Vote for me and low tariff, because the high
-tariff increases the cost of the things you buy." He
-may, it is true, have the great advantage of being able
-to speak by radio directly to fifty million listeners,
-But he is making an old-fashioned approach. He is
+Let us suppose that he is campaigning on a low-tariff platform. He may
+use the modern mechanism of the radio to spread his views, but he will
+almost certainly use the psychological method of approach which was old
+in Andrew Jackson's day, and which business has largely discarded. He
+will say over the radio: "Vote for me and low tariff, because the high
+tariff increases the cost of the things you buy." He may, it is true,
+have the great advantage of being able to speak by radio directly to
+fifty million listeners. But he is making an old-fashioned approach. He
+is arguing with them. He is assaulting, single-handed, the resistance of
+inertia.
 
-arguing with them. He is assaulting, single-handed,
-' the resistance of inertia.
+If he were a propagandist, on the other hand, although he would still
+use the radio, he would use it as one instrument of a well-planned
+strategy. Since he is campaigning on the issue of a low tariff, he not
+merely would tell people that the high tariff increases the cost of the
+things they buy, but would create circumstances which would make his
+contention dramatic and self-evident. He would perhaps stage a
+low-tariff exhibition simultaneously in twenty cities, with exhibits
+illustrating the additional cost due to the tariff in force. He would
+see that these exhibitions were ceremoniously inaugurated by prominent
+men and women who were interested in a low tariff apart from any
+interest in his personal political fortunes. He would have groups, whose
+interests were especially affected by the high cost of living, institute
+an agitation for lower schedules. He would dramatize the issue, perhaps
+by having prominent men boycott woolen clothes, and go to important
+functions in cotton suits, until the wool schedule was reduced. He might
+get the opinion of social workers as to whether the high cost of wool
+endangers the health of the poor in winter.
 
-If he were a propagandist, on the other hand, al-
-though he would still use the radio, he would use
-it as one instrument of a well-planned strategy.
-- Since he is campaigning on the issue of a low tariff, he
-not merely would tell people that the high tariff in-
-creases the cost of the things they buy, but would
-create circumstances which would make his conten-
-tion dramatic and -self-evident. He would perhaps
-stage a low-tariff exhibition simultaneously in twenty
-cities, with exhibits illustrating the additional cost
+In whatever ways he dramatized the issue, the attention of the public
+would be attracted to the question before he addressed them personally.
+Then, when he spoke to his millions of listeners on the radio, he would
+not be seeking to force an argument down the throats of a public
+thinking of other things and annoyed by another demand on its attention;
+on the contrary, he would be answering the spontaneous questions and
+expressing the emotional demands of a public already keyed to a certain
+pitch of interest in the subject.
 
-106
-Propaganda and Political Leadership
+The importance of taking the entire world public into consideration
+before planning an important event is shown by the wise action of Thomas
+Masaryk, then Provisional President, now President of the Republic of
+Czecho-Slovakia.
 
-due to the tariff in force. He would see that these
-exhibitions were ceremoniously inaugurated by prom-
-inent men and women who were interested in a low
-tariff apart from any interest in his personal political
-fortunes. He would have groups, whose interests
-were especially affected by the high cost of living,
-institute an agitation for lower schedules. He would
-dramatize the issue, perhaps by having prominent
-men boycott woolen clothes, and go to important
-functions in cotton suits, until the wool schedule was
-reduced. He might get the opinion of social workers
-as to whether the high cost of wool endangers the
-health of the poor in winter.
+Czecho-Slovakia officially became a free state on Monday, October 28,
+1918, instead of Sunday, October 27, 1918, because Professor Masaryk
+realized that the people of the world would receive more information and
+would be more receptive to the announcement of the republic's freedom on
+a Monday morning than on a Sunday, because the press would have more
+space to devote to it on Monday morning.
 
-In whatever ways he dramatized the issue, the at-
-tention of the public would be attracted to the ques-
-tion before he addressed them personally. Then,
-when he spoke to his millions of listeners on the
-radio, he would not be seeking to force an argument
-down the throats of a public thinking of other things
-and annoyed by another demand on its attention; on
-the contrary, he would be answering the spontaneous
-questions and expressing the emotional demands of
-~a public already keyed to a certain pitch of interest
-in the subject.
+Discussing the matter with me before he made the announcement, Professor
+Masaryk said, "I would be making history for the cables if I changed the
+date of Czecho-Slovakia's birth as a free nation." Cables make history
+and so the date was changed.
 
-The importance of taking the entire world public
-into consideration before planning an important event
-is shown by the wise action of Thomas Masarvyk, then
-Provisional President, now President of the Republic
-of Czecho-Slovakia.
+This incident illustrates the importance of technique in the new
+propaganda.
 
-107
-Propaganda
+It will be objected, of course, that propaganda will tend to defeat
+itself as its mechanism becomes obvious to the public. My opinion is
+that it will not. The only propaganda which will ever tend to weaken
+itself as the world becomes more sophisticated and intelligent, is
+propaganda that is untrue or unsocial.
 
-Czecho-Slovakia officially became a free state on
-Monday, October 28, 1918, instead of Sunday,
-October 27, 1918, because Professor Masaryk real-
-ized that the people of the world would receive more
-information and would be more receptive to the an-
-nouncement of the republic's freedom on a Monday
-morning than on a Sunday, because the press would
-have jnore space to devote to it on Monday morning.
+Again, the objection is raised that propaganda is utilized to
+manufacture our leading political personalities. It is asked whether, in
+fact, the leader makes propaganda, or whether propaganda makes the
+leader. There is a widespread impression that a good press agent can
+puff up a nobody into a great man.
 
-Discussing the matter with me before he made the
-announcement, Professor Masaryk said, "I would
-be making history for the cables if I changed the
-date of Czecho-Slovakia's birth as a free nation."
-Cables make history and so the date was changed.
+The answer is the same as that made to the old query as to whether the
+newspaper makes public opinion or whether public opinion makes the
+newspaper. There has to be fertile ground for the leader and the idea to
+fall on. But the leader also has to have some vital seed to sow. To use
+another figure, a mutual need has to exist before either can become
+positively effective. Propaganda is of no use to the politician unless
+he has something to say which the public, consciously or unconsciously,
+wants to hear.
 
-This incident illustrates the importance of tech-
-nique in the new propaganda.
+But even supposing that a certain propaganda is untrue or dishonest, we
+cannot on that account reject the methods of propaganda as such. For
+propaganda in some form will always be used where leaders need to appeal
+to their constituencies.
 
-It will be objected, of course, that propaganda will
-tend to defeat itself as its mechanism becomes obvi-
-ous to the public. My opinion is that it will not.
-The only propaganda which will ever tend to weaken
-itself as the world becomes more sophisticated and
-intelligent, is propaganda that is untrue or unsocial.
+The criticism is often made that propaganda tends to make the President
+of the United States so important that he becomes not the President but
+the embodiment of the idea of hero worship, not to say deity worship. I
+quite agree that this is so, but how are you going to stop a condition
+which very accurately reflects the desires of a certain part of the
+public? The American people rightly senses the enormous importance of
+the executive's office. If the public tends to make of the President a
+heroic symbol of that power, that is not the fault of propaganda but
+lies in the very nature of the office and its relation to the people.
 
-Again, the objection is raised that propaganda is
-utilized to manufacture our leading political person-
-alities. It isasked whether, in fact, the leader makes
-propaganda, or whether propaganda makes the
-leader.. There is a widespread impression that a
-good press agent can puff up a nobody into a great
-man. ,
+This condition, despite its somewhat irrational puffing up of the man to
+fit the office, is perhaps still more sound than a condition in which
+the man utilizes no propaganda, or a propaganda not adapted to its
+proper end. Note the example of the Prince of Wales. This young man
+reaped bales of clippings 'and little additional glory from his American
+visit, merely because he was poorly advised. To the American public he
+became a well dressed, charming, sport-loving, dancing, perhaps
+frivolous youth. Nothing was done to add dignity and prestige to this
+impression until towards the end of his stay he made a trip in the
+subway of New York. This sole venture into democracy and the serious
+business of living as evidenced in the daily habits of workers, aroused
+new interest in the Prince. Had he been properly advised he would have
+augmented this somewhat by such serious studies of American life as were
+made by another prince, Gustave of Sweden. As a result of the lack of
+well directed propaganda, the Prince of Wales became in the eyes of the
+American people, not the thing which he constitutionally is, 2 symbol of
+the unity of the British Empire, but part and parcel of sporting Long
+Island and dancing beauties of the ballroom. Great Britain lost an
+invaluable opportunity to increase the good will and understanding
+between the two countries when it failed to understand the importance of
+correct public relations counsel for His Royal Highness.
 
-The answer is the same as that made to the old
+The public actions of America's chief executive are, if one chooses to
+put it that way, stage-managed. But they are chosen to represent and
+dramatize the man in his function as representative of the people. A
+political practice which has its roots in the tendency of the popular
+leader to follow oftener than he leads is the technique of the trial
+balloon which he uses in order to maintain, as he believes, his contact
+with the public. The politician, of course, has his ear to the ground.
+It might be called the clinical ear. It touches the ground and hears the
+disturbances of the political universe.
 
-108
-Propaganda and Political Leadership
+But he often does not know what the disturbances mean, whether they are
+superficial, or fundamental. So he sends up his balloon. He may send out
+an anonymous interview through the press. He then waits for
+reverberations to come from the public—a public which expresses itself
+in mass meetings, or resolutions, or telegrams, or even such obvious
+manifestations as editorials in the partisan or nonpartisan press. On
+the basis of these repercussions he then publicly adopts his original
+tentative policy, or rejects it, or modifies it to conform to the sum of
+public opinion which has reached him. This method is modeled on the
+peace feelers which were used during the war to sound out the
+disposition of the enemy to make peace or to test any one of a dozen
+other popular tendencies. It is the method commonly used by a politician
+before committing himself to legislation of any kind, and by a
+government before committing itself on foreign or domestic policies.
 
-query as to whether the newspaper makes public
-opinion or whether public opinion makes the news-
-paper. There has to be fertile ground for the leader
-and the idea to fall on. But the leader also has to
-have some vital seed tosow. To use another figure, a
-mutual need has to exist before either can become
-positively effective. Propaganda is of no use to the
-politician unless he has something to say which the
-public, consciously or unconsciously, wants to hear.
+It is a method which has little justification. If a politician is a real
+leader he will be able, by the skillful use of propaganda, to lead the
+people, instead of following the people by means of the clumsy
+instrument of trial and error.
 
-But even supposing that a certain propaganda is
-untrue or dishonest, we cannot on that account re-
-Jject the methods of propaganda as such. For propa-
-ganda in some form will always be used where lead-
-ers need to appeal to their constituencies.
+The propagandist's approach is the exact opposite of that of the
+politician just described. The whole basis of successful propaganda is
+to have an objective and then to endeavor to arrive at it through an
+exact knowledge of the public and modifying circumstances to manipulate
+and sway that public.
 
-The criticism is often made that propaganda tends
-to make the President of the United States so im-
-portant that he becomes not the President but the
-embodiment of the idea of hero worship, not to say
-deity worship. I quite agree that this is so, but how
-are you going to stop a condition which very accu-
-rately reflects the desires of a certain part of the
-public? The American people rightly senses the
-enormous importance of the executive's office. If the
-public tends to make of the President a heroic symbol
-of that power, that is not the fault of propaganda but
-lies in the very nature of the office and its relation to
-the people.
+"The function of a statesman," says George Bernard Shaw, "is to express
+the will of the people in the way of a scientist."
 
-This condition, despite its somewhat irrational puff-
-ing up of the man to fit the office, is perhaps still
+The political leader of to-day should be a leader as finely versed in
+the technique of propaganda as in political economy and civics. If he
+remains merely the reflection of the average intelligence of his
+community, he might as well go out of politics. If one is dealing with a
+democracy in which the herd and the group follow those whom they
+recognize as leaders, why should not the young men training for
+leadership be trained in its technique as well as in its idealism?
 
-109
-Propaganda
+"When the interval between the intellectual classes and the practical
+classes is too great," says the historian Buckle, "the former will
+possess no influence, the latter will reap no benefits."
 
-more sound than a condition in which the man utilizes
-no propaganda, or a propaganda not adapted to its
-proper end. Note the example of the Prince of
-Wales. This young man reaped bales of clippings
-'and little additional glory from his American visit,
-merely because he was poorly advised. To the Ameri-
-can public he became a well dressed, charming, sport-
-loving, dancing, perhaps frivolous youth. Nothing
-was done to add dignity and prestige to this impres-
-sion unti] towards the end of his stay he made a trip
-in the subway of New York. This sole venture into
-democracy and the serious business of living as evi-
-denced in the daily habits of workers, aroused new
-interest in the Prince. Had he been properly advised
-he would have augmented this somewhat by such
-serious studies of American life as were made by an-
-other prince, Gustave of Sweden. As a result of the
-lack of well directed propaganda, the Prince of Wales
-became in the eyes of the American people, not the
-thing which he constitutionally is, 2 symbol of the
-unity of the British Empire, but part and parcel of
-sporting Long Island and dancing beauties of the
-ballroom. Great Britain lost an invaluable oppor-
-tunity to increase the good will and understanding
-between the two countries when it failed to under-
-stand the importance of correct public relations coun-
-sel for His Royal Highness.
+Propaganda bridges this interval in our modern complex civilization.
 
-"The public actions of America's chief executive are,
-if one chooses to put it that way, stage-managed.
-
-110
-Propaganda and Polisical Leadership
-
-But they are chosen to represent and dramatize the
-man in his function as representative of the people.
-A political practice which has its roots in the tendency
-of the popular leader to follow oftener than he
-leads is the technique of the trial balloon which he
-uses in order to maintain, as he believes, his contact
-with the public. The politician, of course, has his
-ear to the ground. It might be called the clinical ear.
-It touches the ground and hears the disturbances of
-the political universe.
-
-But he often does not know what the disturbances
-mean, whether they are superficial, or fundamental.
-So he sends up his balloon. He may send out an
-anonymous interview through the press. He then
-waits for reverberations to come from the public—a
-public which expresses itself in mass meetings, or
-resolutions, or telegrams, or even such obvious mani-
-festations as editorials in the partisan or nonpartisan
-
--press. On the basis of these repercussions he then
-publicly adopts his original tentative policy, or rejects
-it, or modifies it to conform to the sum of public
-opinion which has reached him. This method is
-modeled on the peace feelers which were used during
-the war to sound out the disposition of the enemy to
-make peace or to test any one of a dozen other popu~
-lar tendencies. It is the method commonly used by
-a politician before committing himself to legislation
-of any kind, and by a government before committing
-itself on foreign or domestic policies.
-
-111
-Propaganda
-
-It is a2 method which has little justification. If a
-politician is a real leader he will be able, by the skill-
-ful use of propaganda, to lead the people, instead of
-following the people by means of the clumsy instru-
-ment of trial and error.
-
-The propagandist's approach is the exact opposite
-of that of the politician just described. The whole
-basis of successful propaganda is to have an objective
-and then to endeavor to arrive at it through an exact
-knowledge of the public and modifying circum-
-stances to manipulate and sway that public.
-
-"The function of a statesman," says George Ber-
-nard Shaw, "is to express the will of the people in the
-way of a scientist."
-
-The political leader of to-day should be a leader
-as finely versed in the technique of propaganda as
-in politicaleconomy and civics. If he remains merely
-the reflection of the average intelligence of his com-
-munity, he might as well go out of politics. If one
-is dealing with a democracy in which the herd and the
-group follow those whom they recognize as leaders,
-why should not the young men training for leader-
-ship be trained in its technique as well as in its
-idealism?
-
-"When the interval between the intellectual classes
-and the practical classes is too great," says the his-
-torian Buckle, "the former will possess no influence,
-the latter will reap no benefits."
-
-112
-Propaganda and Political Leadership
-
-Propaganda bridges this interval in our modern
-complex civilization.
-
-Only through the wise use of propaganda will our
-government, considered as the continuous administra-
-tive organ of the people, be able to maintain that inti-
-mate relationship with the public which is necessary
+Only through the wise use of propaganda will our government, considered
+as the continuous administrative organ of the people, be able to
+maintain that intimate relationship with the public which is necessary
 in a democracy.
 
-As David Lawrence pointed out in a recent speech,
-there is need for an intelligent interpretative bureau
-for our government in Washington. There is, it is
-true, a Division of Current Information in the De-
-partment of State, which at first was headed by a
-trained newspaper man. But later this position began
-to be filled by men from the diplomatic service, men
-who had very little knowledge of the public. While
-some of these diplomats have done very well, Mr.
-Lawrence asserted that in the long run the country
-would be benefited if the functions of this office were
-in the hands of a different type of person.
+As David Lawrence pointed out in a recent speech, there is need for an
+intelligent interpretative bureau for our government in Washington.
+There is, it is true, a Division of Current Information in the
+Department of State, which at first was headed by a trained newspaper
+man. But later this position began to be filled by men from the
+diplomatic service, men who had very little knowledge of the public.
+While some of these diplomats have done very well, Mr. Lawrence asserted
+that in the long run the country would be benefited if the functions of
+this office were in the hands of a different type of person.
 
-There should, I believe, be an Assistant Secretary
-of State who is familiar with the problem of dis-
-pensing information to the press—some one upon
-whom the Secretary of State can call for consulta-
-tion and who has sufficient authority to persuade the
-Secretary of State to make public that which, for in-
-sufficient reason, is suppressed.
+There should, I believe, be an Assistant Secretary of State who is
+familiar with the problem of dispensing information to the press—some
+one upon whom the Secretary of State can call for consultation and who
+has sufficient authority to persuade the Secretary of State to make
+public that which, for insufficient reason, is suppressed.
 
-The function of the propagandist is much broader
-in scope than that of a mere dispenser of informa-
-tion to the press. The United States Government
+The function of the propagandist is much broader in scope than that of a
+mere dispenser of information to the press. The United States Government
+should create a Secretary of Public Relations as member of the
+President's Cabinet. The function of this official should be correctly
+to interpret America's aims and ideals throughout the world, and to keep
+the citizens of this country in touch with governmental activities and
+the reasons which prompt them. He would, in short, interpret the people
+to the government and the government to the people.
 
-113
-Propaganda
+Such an official would be neither a propagandist nor a press agent, in
+the ordinary understanding of those terms. He would be, rather, a
+trained technician who would be helpful in analyzing public thought and
+public trends, in order to keep the government informed about the
+public, and the people informed about the government. America's
+relations with South America and with Europe would be greatly improved
+under such circumstances. Ours must be a leadership democracy
+administered by the intelligent minority who know how to regiment and
+guide the masses.
 
-should create a Secretary of Public Relations as
-member of the President's Cabinet. The function of
-this official should be correctly to interpret America's
-aims and ideals throughout the world, and to keep
-the citizens of this country in touch with govern-
-mental activities and the reasons which prompt them.
-He would, in short, interpret the people to the gov-
-ernment and the government to the people.
-
-Such an official would be neither a propagandist nor
-a press agent, in the ordinary understanding of those
-terms. He would be, rather, a trained technician
-who would be helpful in analyzing public thought
-and public trends, in order to keep the government
-informed about the public, and the people informed
-about the government. America's relations with
-South America and with Europe would be greatly
-improved under such circumstances. Ours must be
-a leadership democracy administered by the intelli-
-gent minority who know how to regiment and guide
-the masses. :
-
-Is this government by propaganda?! Call it, if you
-prefer, government by education. But education, in
-the academic sense of the word, is not sufficient. It
-must be enlightened expert propaganda through the
-creation of circumstances, through the high-spotting
-of significant events, and the dramatization of im-
-portant issues. The statesman of the future will thus
-be enabled to focus the public mind on crucial points
-of policy, and regiment a vast, heterogeneous mass
-of voters to clear understanding and intelligent action
-
-114
+Is this government by propaganda?! Call it, if you prefer, government by
+education. But education, in the academic sense of the word, is not
+sufficient. It must be enlightened expert propaganda through the
+creation of circumstances, through the high-spotting of significant
+events, and the dramatization of important issues. The statesman of the
+future will thus be enabled to focus the public mind on crucial points
+of policy, and regiment a vast, heterogeneous mass of voters to clear
+understanding and intelligent action.
