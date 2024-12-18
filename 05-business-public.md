@@ -449,7 +449,7 @@ channels of approach to the public—the dental clinics, the schools, the
 women's clubs, the medical colleges, the dental press and even the daily
 press—bring to the public the truth of what a tooth paste can do. This
 will, of course, have its effect in making the honestly advertised tooth
-paste get to its,real public.
+paste get to its real public.
 
 Propaganda is potent in meeting unethical or unfair advertising.
 Effective advertising has become more costly than ever before. Years

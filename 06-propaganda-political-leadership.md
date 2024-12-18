@@ -71,7 +71,7 @@ public, the manufacture of products based on this study, and exhaustive
 use of every means of reaching the public.
 
 Political campaigns to-day are all side shows, all honors, all bombast,
-glitter,and speeches. These are for the most part unrelated to the main
+glitter, and speeches. These are for the most part unrelated to the main
 business of studying the public scientifically, of supplying the public
 with party, candidate, platform, and performance, and selling the public
 these ideas and products.
