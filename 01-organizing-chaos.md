@@ -142,7 +142,7 @@ The American Newspaper Annual and Directory for 1928 lists 22,128
 periodical publications in America. I have selected at random the N's
 published in Chicago. They are:
 
-Narod (Bohemian daily newspaper) ; Narod-Polski (Polish monthly);
+Narod (Bohemian daily newspaper); Narod-Polski (Polish monthly);
 N.A.R.D. (pharmaceutical); National Corporation Reporter; National
 Culinary Progress (for hotel chefs); National Dog Journal; National Drug
 Clerk; National Engineer; National Grocer; National Hotel Reporter;
