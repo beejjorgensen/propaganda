@@ -1,4 +1,4 @@
-# CHAPTER III
+# CHAPTER III {#chapter-3}
 
 ::: {.pblock .center .double-space-after}
 THE NEW PROPAGANDISTS

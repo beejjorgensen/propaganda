@@ -1,4 +1,4 @@
-# CHAPTER IV
+# CHAPTER IV {#chapter-4}
 
 ::: {.pblock .center .double-space-after}
 THE PSYCHOLOGY OF PUBLIC RELATIONS
