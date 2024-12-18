@@ -112,7 +112,7 @@ proverb. Let us make haste to put this fine old word back where it
 belongs, and restore, its dignified significance for the use of our
 children and our children's children."
 The extent to which propaganda shapes the progress of affairs about
-us.may surprise even well informed persons. Nevertheless, it is only
+us may surprise even well informed persons. Nevertheless, it is only
 necessary to look under the surface of the newspaper for a hint as to
 propaganda's authority over public opinion. Page one of the New York
 _Times_ on the day these paragraphs are written contains eight important
