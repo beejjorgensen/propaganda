@@ -215,13 +215,13 @@ To appeal to the emotions of the public in a political campaign is
 sound—in fact it is an indispensable part of the campaign. But the
 emotional content must—
 
-(a) coincide in every way with the broad basic plans of the campaign and
-all its minor details;
+\(a\) coincide in every way with the broad basic plans of the campaign
+and all its minor details;
 
-(b) be adapted to the many groups of the public at which it is to be
+\(b\) be adapted to the many groups of the public at which it is to be
 aimed; and
 
-(c) conform to the media of the distribution of ideas.
+\(c\) conform to the media of the distribution of ideas.
 
 The emotions of oratory have been worn down through long years of
 overuse. Parades, mass meetings, and the like are successful when the
