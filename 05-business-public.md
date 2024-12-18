@@ -584,7 +584,7 @@ some sales appeal other than mere cheapness, to give the product, in the
 public mind, some other attraction, some idea that will modify the
 product slightly, some element of originality that will distinguish it
 from products in the same line. Thus, a manufacturer of typewriters
-paints his machines in cheerful hues, These special types of appeal can
+paints his machines in cheerful hues. These special types of appeal can
 be popularized by the manipulation of the principles familiar to the
 propagandist—the principles of gregariousness, obedience to authority,
 emulation, and the like. A minor element can be made to assume economic

@@ -34,7 +34,7 @@ advertising slogans, with editorials, with published scientific data,
 with the trivialities of the tabloids and the platitudes of history, but
 quite innocent of original thought. Each man's rubber stamps are the
 duplicates of millions of others, so that when those millions are
-exposed to the same stimuli, all receive identical imprints, It may seem
+exposed to the same stimuli, all receive identical imprints. It may seem
 an exaggeration to say that the American public gets most of its ideas
 in this wholesale fashion. The mechanism by which ideas are disseminated
 on a large scale is propaganda, in the broad sense of an organized
