@@ -213,6 +213,11 @@ div.pblock p {
   text-indent: 0;
   margin: 1em 0;
 }
+
+div.blank-line-bottom {
+  margin-bottom: 1em;
+}
+
 div.no-indent p {
   text-indent: 0;
 }

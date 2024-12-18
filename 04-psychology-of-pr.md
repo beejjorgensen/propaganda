@@ -163,7 +163,7 @@ influences the eating habits of the public?" The answer, obviously, is:
 "The physicians." The new salesman will then suggest to physicians to
 say publicly that it is wholesome to eat bacon. He knows as a
 mathematical certainty, that large numbers of persons will follow the
-advice of their doctors, because he under- stands the psychological
+advice of their doctors, because he understands the psychological
 relation of dependence of men upon their physicians.
 
 The old-fashioned propagandist, using almost exclusively the appeal of
@@ -249,148 +249,103 @@ use it as a focus for national interest and discovered that its opening
 fell coincident with a date important in the annals of the American
 Postal Service. This was then made the basis of the opening.
 
-When an attempt was made to show the public the
-beauty of the apartments, a competition was held
-among interior decorators for the best furnished
-apartment in Jackson Heights. An important com-
-mittee of judges decded. This competition drew
-the approval of well known authorities, as well as
-the interest of millions, who were made cognizant of
-it through newspaper and magazine and other pub-
-licity, with the effect of building up definitely the
-prestige of the development.
+When an attempt was made to show the public the beauty of the
+apartments, a competition was held among interior decorators for the
+best furnished apartment in Jackson Heights. An important committee of
+judges decided. This competition drew the approval of well known
+authorities, as well as the interest of millions, who were made
+cognizant of it through newspaper and magazine and other publicity, with
+the effect of building up definitely the prestige of the development.
 
-One of the most effective methods is the utilization
-of the group formation of modern society in order
-to spread ideas. An example of this is the nation-
-'wide competitions for sculpture in Ivory soap, open
-to school children in certain age groups as well as
-professional sculptors. A sculptor of national repu-
-tation found Ivory soap an excellent medium for
-sculpture.
+One of the most effective methods is the utilization of the group
+formation of modern society in order to spread ideas. An example of this
+is the nationwide competitions for sculpture in Ivory soap, open to
+school children in certain age groups as well as professional sculptors.
+A sculptor of national reputation found Ivory soap an excellent medium
+for sculpture.
 
-57
-Propaganda
+The Procter and Gamble Company offered a series of prizes for the best
+sculpture in white soap. The contest was held under the auspices of the
+Art Center in New York City, an organization of high standing in the art
+world.
 
-The Procter and Gamble Company offered a series
-of prizes for the best sculpture in white soap. The
-contest was held under the auspices of the Art
-Center in New York City, an organization of high
-standing in the art world.
+School superintendents and teachers throughout the country were glad to
+encourage the movement as an educational aid for schools. Practice among
+school children as part of their art courses was stimulated. Contests
+were held between schools, between school districts and between cities.
 
-School superintendents and teachers throughout
-the country were glad to encourage the movement as
-an educational aid for schools. Practice among
-school children as part of their art courses was stim-
-ulated. Contests were held between schools, be-
-tween school districts and between cities.
+Ivory soap was adaptable for sculpturing in the homes because mothers
+saved the shavings and the imperfect efforts for laundry purposes. The
+work itself was clean.
 
-Ivory soap was adaptable for sculpturing in the
-homes because motkers saved the shavings and the
-imperfect efforts for laundry purposes. The work
-itself was clean.
+The best pieces are selected from the local competitions for entry in
+the national contest. This is held annually at an important art gallery
+in New York, whose prestige with that of the distinguished judges,
+establishes the contest as a serious art event.
 
-The best pieces are selected from the local com-
-petitions for entry in the national contest. This is
-held annually at an important art gallery in New
-York, whose prestige with that of the distinguished
-judges, establishes the contest as a serious art event.
+In the first of these national competitions about 500 pieces of
+sculpture were entered. In the third, 2,500. And in the fourth, more
+than 4,000. If the carefully selected pieces were so numerous, it is
+evident that a vast number were sculptured during the year, and that a
+much greater number must have been made for practice purposes. The good
+will was greatly enhanced by the fact that this soap had become not
+merely the concern of the housewife but also a matter of personal and
+intimate interest to her children.
 
-Ia the first of these national competitions about
-500 pieces of sculpture were entered. In the
-third, 2,500. And in the fourth, more than 4,000.
-If the carefully selected pieces were so numerous,
-it is evident that a vast number were sculptured dur-
-ing the year, and that a much greater number
-must have been made for practice purposes. The
-good will was greatly enhanced by the fact that this
-soap had become not merely the concern of the
+A number of familiar psychological motives were set in motion in the
+carrying out of this campaign. The esthetic, the competitive, the
+gregarious (much of the sculpturing was done in school groups), the
+snobbish (the impulse to follow the example of a recognized leader), the
+exhibitionist, and—last but by no means least—the maternal.
 
-58
-The Psychology of Public Relations
+All these motives and group habits were put in concerted motion by the
+simple machinery of group leadership and authority. As if actuated by
+the pressure of a button, people began working for the client for the
+sake of the gratification obtained in the sculpture work itself.
 
-housewife but also a matter of personal and intimate
-interest to her children.
+This point is most important in successful propaganda work. The leaders
+who lend their authority to any propaganda campaign will do so only if
+it can be made to touch their own interests. There must be a
+disinterested aspect of the propagandist's activities. In other words,
+it is one of the functions of the public relations counsel to discover
+at what points his client's interests coincide with those of other
+individuals or groups.
 
-A number of familiar psychological motives were
-set in motion in the carrying out of this campaign.
-The esthetic, the competitive, the gregarious (much
-of the sculpturing was done in school groups), the
-snobbish (the impulse to follow the example of a
-recognized leader), the exhibitionist, and—Iast but
-by no means least—the maternal.
+In the case of the soap sculpture competition, the distinguished artists
+and educators who sponsored the idea were glad to lend their services
+and their names because the competitions really promoted an interest
+which they had at heart—the cultivation of the esthetic impulse among
+the younger generation.
 
-All these motives and group habits were put in
-concerted motion by the simple machinery of group
-leadership and authority. As if actuated by the
-pressure of a button, people began working for the
-client for the sake of the gratification obtained in the
-sculpture work itself.
+Such coincidence and overlapping of interests is as infinite as the
+interlacing of group formations themselves. For example, a railway
+wishes to develop its business. The counsel on public relations makes a
+survey to discover at what points its interests coincide with those of
+its prospective customers. The company then establishes relations with
+chambers of commerce along its right of way and assists them in
+developing their communities. It helps them to secure new plants and
+industries for the town. It facilitates business through the
+dissemination of technical information. It is not merely a case of
+bestowing favors in the hope of receiving favors; these activities of
+the railroad, besides creating good will, actually promote growth on its
+right of way. The interests of the railroad and the communities through
+which it passes mutually interact and feed one another.
 
-This point is most important in successful propa-
-ganda work. The leaders who lend their authority
-to any propaganda campaign will do so only if it can
-be made to touch their own interests. There must
-be a disinterested aspect of the propagandist's activi-
-ties. - In other words, it is one of the functions of the
-public relations counsel to discover at what points
-his client's interests coincide with those of other indi-
-viduals or groups.
+In the same way, a bank institutes an investment service for the benefit
+of its customers in order that the latter may have more money to deposit
+with the bank. Or a jewelry concern develops an insurance department to
+insure the jewels it sells, in order to make the purchaser feel greater
+security in buying jewels. Or a baking company establishes an
+information service suggesting recipes for bread to encourage new uses
+for bread in the home.
 
-In the case of the soap sculpture competition, the
-distinguished artists and educators who sponsored
-the idea were glad to lend their services and their
-names because the competitions really promoted an
-interest which they had at heart-——the cultivation of
+The ideas of the new propaganda are predicated on sound psychology based
+on enlightened self-interest.
 
-59
-Propaganda
-
-the esthetic impulse among the younger generation.
-
-Such coincidence and overlapping of interests is
-as infinite as the interlacing of group formations
-themselves. For example, a railway wishes to de-
-velop its business. The counsel on public relations
-makes a survey to discover at what points its interests
-coincide with those of its prospective customers. The
-company then establishes relations with chambers of
-commerce along its right of way and assists them in
-developing their communities. It helps them to
-secure new plants and industries for the town. It
-facilitates business through the dissemination of
-technical information. It is not merely a case of
-bestowing favors in the hope of receiving favors;
-these activities of the railroad, besides creating good
-will, actually promote growth on its right of way.
-The interests of the railroad and the communities
-through which it passes mutually interact and feed
-one another.
-
-In the same way, a bank institutes an investment
-service for the benefit of its customers in order that
-the latter may have more money to deposit with the
-bank. Or a jewelry concern develops an insurance
-department to insure the jewels it sells, in order to
-make the purchaser feel greater security in buying
-jewels. Or a baking company establishes an in-
-formation service suggesting recipes for bread to
-encourage new uses for bread in the home.
-
-60
-The Psychology of Public Relations
-
-The ideas of the new propaganda are predicated
-on sound psychology based on enlightened self-
-interest.
-
-I have tried, in these chapters, to explain the place
-of propaganda in modern American life and some-
-thing of the methods by which it operates—to tell
-the why, the what, the who and the how of the
-invisible government which dictates our thoughts,
-directs our feelings and controls our actions. In the
-following chapters I shall try to show how propa-
-ganda functions in specific departments of group
-activity, to suggest some of the further ways in
-which it may operate.
+I have tried, in these chapters, to explain the place of propaganda in
+modern American life and something of the methods by which it
+operates—to tell the why, the what, the who and the how of the invisible
+government which dictates our thoughts, directs our feelings and
+controls our actions. In the following chapters I shall try to show how
+propaganda functions in specific departments of group activity, to
+suggest some of the further ways in which it may operate.

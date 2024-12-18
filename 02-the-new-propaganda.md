@@ -262,16 +262,16 @@ velvet creations in the atelier of the dressmaker or the milliner. She
 bought the velvet because she liked it and because it was in fashion.
 
 The editors of the American magazines and fashion reporters of the
-American newspapers, like- wise subjected to the actual (although
-created) circumstance, reflected it in their news, which, in turn,
-subjected the buyer and the consumer here to the same influences. The
-result was that what was at first trickle of velvet became a flood. A
-demand was slowly, but deliberately, created in Paris and America. A big
-department store, aiming to be a style leader, advertised velvet gowns
-and hats on the authority of the French couturiers, and quoted original
-cables received from them. The echo of the new style note was heard from
-hundreds of department stores throughout the country which wanted to be
-style leaders too. Bulletins followed despatches. The mail followed the
+American newspapers, likewise subjected to the actual (although created)
+circumstance, reflected it in their news, which, in turn, subjected the
+buyer and the consumer here to the same influences. The result was that
+what was at first trickle of velvet became a flood. A demand was slowly,
+but deliberately, created in Paris and America. A big department store,
+aiming to be a style leader, advertised velvet gowns and hats on the
+authority of the French couturiers, and quoted original cables received
+from them. The echo of the new style note was heard from hundreds of
+department stores throughout the country which wanted to be style
+leaders too. Bulletins followed despatches. The mail followed the
 cables. And the American woman traveler appeared before the ship news
 photographers in velvet gown and hat.
 
@@ -284,7 +284,7 @@ whole, not infrequently serves to focus and realize the desires of the
 masses. A desire for a specific reform, however widespread, cannot be
 translated into action until it is made articulate, and until it has
 exerted sufficient pressure upon the proper law-making bodies. Millions
-of house- wives may feel that manufactured foods deleterious to health
+of housewives may feel that manufactured foods deleterious to health
 should be prohibited. But there is little chance that their individual
 desires will be translated into effective legal form unless their
 half-expressed demand can be organized, made vocal, and concentrated
