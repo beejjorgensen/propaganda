@@ -10,32 +10,24 @@ of the voluntary support of the wealthy, it is obliged to use propaganda
 continually. The leaders in social service were among the first
 consciously to utilize propaganda in its modern sense.
 
-The great enemy of any attempt to change men's
-habits is inertia. Civilization is limited by inertia.
+The great enemy of any attempt to change men's habits is inertia.
+Civilization is limited by inertia.
 
-Our attitude toward social relations, toward eco-
-nomics, toward national and international politics,
-continues past attitudes and strengthens them under
-the force of tradition. Comstock drops his mantle
-of proselytizing morality on the willing shoulders of
-a Sumner; Penrose drops his mantle on Butler; Car-
-negie his on Schwab, and so ad #nfinitum. Opposing
-this traditional acceptance of existing ideas is an active
-public opinion that has been directed consciously into
-movements against inertia. Public opinion was made
-or changed formerly by tribal chiefs, by kings, by
-religious leaders. To-day the privilege of attempt-
-ing to sway public opinion is every one's. It is one
-of the manifestations of democracy that any one may
+Our attitude toward social relations, toward economics, toward national
+and international politics, continues past attitudes and strengthens
+them under the force of tradition. Comstock drops his mantle of
+proselytizing morality on the willing shoulders of a Sumner; Penrose
+drops his mantle on Butler; Carnegie his on Schwab, and so _ad
+infinitum_. Opposing this traditional acceptance of existing ideas is an
+active public opinion that has been directed consciously into movements
+against inertia. Public opinion was made or changed formerly by tribal
+chiefs, by kings, by religious leaders. To-day the privilege of
+attempting to sway public opinion is every one's. It is one of the
+manifestations of democracy that any one may try to convince others and
+to assume leadership on behalf of his own thesis.
 
-135 « :
-Propaganda
-
-try to convince others and to assume leadership on
-behalf of his own thesis.
-
-New ideas, new precedents, are continually striv-
-ing for a place in the scheme of things.
+New ideas, new precedents, are continually striving for a place in the
+scheme of things.
 
 The social settlement, the organized campaigns
 against tuberculosis and cancer, the various research
