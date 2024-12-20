@@ -99,7 +99,7 @@ immediately places an order with the cloth makers for several hundred
 thousand dollars' worth of cloth. The suits made up according to the
 specifications are then advertised as the latest fashion. The
 fashionable men in New York, Chicago, Boston and Philadelphia wear them.
-And the Topeka man, recognizing this leadership; does the same.
+And the Topeka man, recognizing this leadership, does the same.
 
 Women are just as subject to the commands of invisible government as are
 men. A silk manufacturer, seeking a new market for its product,
